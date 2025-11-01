@@ -1,0 +1,2 @@
+# mente-suprema-qi-
+mentesupremaqi
